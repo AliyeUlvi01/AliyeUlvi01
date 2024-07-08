@@ -1,4 +1,4 @@
-- So here I'm, Ulvi Aliyev (from Azerbaijan 🟦🟥🟩)
+- I'm Ulvi Aliyev and from Azerbaijan 🟦🟥🟩
 
 - Ulvi getting educated in Marmara University (since 2020 ⌛)
 
